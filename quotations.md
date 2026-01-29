@@ -63,3 +63,4 @@
 - Il faut imaginer Sisyphe heureux, car le travail de la pierre et la fatigue sont à lui, et la lutte elle-même vers les sommets suffit à remplir un cœur d’homme. — Albert Camus
 - The only thing I know is that I know nothing. – Socrates 
 - Every living thing is born without reason, prolongs itself out of weakness and dies by chance. – Jean Paul-Sartre
+- El arte más noble, es de hacer feliz a los demás - José Martí
